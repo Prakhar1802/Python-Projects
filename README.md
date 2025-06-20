@@ -54,6 +54,6 @@ All projects are for **educational and portfolio purposes only**. Datasets are e
 Analyst @ Oracle  
 📫 [GitHub](https://github.com/Prakhar1802)  
 📩 prakhartripathi1802@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/prakhartripathi1802/)
+🔗 [LinkedIn](https://www.linkedin.com/in/prakhar-tripathi-/)
 
    
